@@ -1,0 +1,1 @@
+To become a software developer is not a sprint, it's a marathon
